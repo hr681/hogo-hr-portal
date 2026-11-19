@@ -1,1 +1,0 @@
-# hogo-hr-portal
